@@ -14,6 +14,4 @@
 ┗━━━━━━━━━━━━━━━┛
 
 
-<img width="640" height="340" alt="tsurumi-golden-kamuy" src="https://github.com/user-attachments/assets/2ec985b2-9e93-411b-aaa5-0677384a02b7" />
-
 ⁱᵈᵏ ʷʰᵃᵗ ᵉˡˢᵉ ᵗᵒ ᵖᵘᵗ ʰᵉʳᵉ ᵈᵘᵈᵉ
